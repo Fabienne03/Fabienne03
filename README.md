@@ -1,5 +1,5 @@
-## Hello Fabulous People 👋
-I am Fabienne Olibrice, you can also refer to me as "Fabi". I am a second year undergraduate student at Florida International University. I am pursuing B.S.Computer Science and a M.N. in Mathematicl Sciences. The following is  little more about myself along with my interests and how I developed an interest in tech!
+## Hello Fabulous People 🩷
+I am Fabienne Olibrice, you can also refer to me as "Fabi". I am a second year undergraduate student at Florida International University. I am pursuing B.S.Computer Science and a M.N. in Mathematicl Sciences. The following is  little more about myself along with my interests and how I developed an interest in tech 🤩
 
 As an African American young woman of Haitian descent, I have always been driven by a strong commitment to academics and community involvement. From a young age, I actively engaged in school through leadership roles and community service, which cultivated my passion for making a positive impact. My interest in technology began in middle school through participation in a STEM program, fueled by my love for math. This early exposure solidified my desire to pursue a career in tech, not only due to my genuine interest but also my dedication to addressing the gender gap in engineering fields—a cause I find both important and valuable to advocate for.
 
